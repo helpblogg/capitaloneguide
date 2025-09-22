@@ -10,6 +10,7 @@ Quick and Easy Ways to Activate Your Capital One Card
    :target: https://pre.im/?IoNI0ht3zGaPxhp7yYtNQqCN04POSztXhM7zlNTKDHln5e74cKKvIaHgROfOJbCAGZ68DfJGFgM67Q
    :align: center
 
+
 Overview
 --------
 
